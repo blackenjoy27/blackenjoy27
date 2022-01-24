@@ -6,4 +6,4 @@
 - 💬 Ask me about front end stuff, I am willing to help.
 - 📫 How to reach me: I want someone to pair program with me.
 - 😄 Pronouns: he/his/him
-- ⚡ Fun fact: I was dreaming about been as an NBA player when I was 14 and give up when I know I can't grow anymore.
+- ⚡ Fun fact: I am a New Yorker
